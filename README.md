@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+[Hire me](https://www.linkedin.com/in/eric-dong-0797611ab/)
 <!--
 **GoodestUsername/GoodestUsername** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
